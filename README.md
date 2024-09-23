@@ -1,3 +1,3 @@
 # SEJAM BEM VINDOS! PROFE MARCIA💻
 ## Estou estudando a plataforma Edutech com o aplicativo Git Hub....
-![](https://media.tenor.com/pt-BR/view/omg-wow-really-surprised-feeling-it-gif-15881647)
+![](htts://media.tenor.com/MOSy7NiaaX4AAAAC/red-heart-heart.gif)
